@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning Python in Cybersecurity, Data Science, Machine Learning, AI
 - 🌱 I’m currently pursuing PhD in Technology Management, Cybersecurity
 - 💞️ I’m looking to collaborate on cybersecurity projects
-- 📫 How to reach me: A.Maronga5742@o365.ncu.edu;
+- 📫 How to reach me: (480)382-9655;
 contact@teecanva.com; maronga@abiuthmaronga.com; 
 https://abiuthmaronga.com/; 
 https://www.linkedin.com/in/abiuthmaronga/
